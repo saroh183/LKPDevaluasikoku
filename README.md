@@ -1,0 +1,2 @@
+# LKPDevaluasikoku
+Pestisida nabati
